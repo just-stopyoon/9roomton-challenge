@@ -15,5 +15,5 @@
 ---
 ### [구름톤 챌린지] 학습일기
 1일차 : https://just-stopyoon.tistory.com/25
-
-
+2일차 : https://just-stopyoon.tistory.com/26
+3일차 : https://just-stopyoon.tistory.com/27
